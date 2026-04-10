@@ -1,0 +1,1 @@
+# maple-cashshop-images
